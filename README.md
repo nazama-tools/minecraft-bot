@@ -1,2 +1,0 @@
-# minecraft-bot
-MAKE YOUR SERVER IS ONLINE 24/7
